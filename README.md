@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @WoolyMammouth
 - 👀 I’m interested in exploring the abysmal depths of your mom's crotch
-- 🌱 I’m currently learning how to launch a cult that has a murderous motive
+- 🌱 I’m currently learning how to launch a cult that has a murderous motive and deeply racist members
 - 💞️ I’m looking to collaborate on the overthrowing of the government
 - 📫 How to reach me, just go in your mom's bedroom
 
